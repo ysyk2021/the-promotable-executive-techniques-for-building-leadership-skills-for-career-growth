@@ -1,4 +1,4 @@
-Chapter 5: Emotional Intelligence: Building Relationships with Others
+Building Relationships with Others
 =====================================================================
 
 Emotional intelligence is an essential aspect of effective leadership. In this chapter, we will discuss techniques for building relationships with others through emotional intelligence.

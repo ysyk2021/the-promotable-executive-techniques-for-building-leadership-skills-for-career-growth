@@ -1,4 +1,4 @@
-Chapter 3: Developing Your Leadership Skills: Assessing Your Current Leadership Abilities
+Assessing Your Current Leadership Abilities
 =========================================================================================
 
 Effective leadership involves ongoing self-reflection and improvement. In this chapter, we will discuss the importance of assessing your current leadership abilities and techniques for doing so.

@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Purpose of the book](chapter-1-1.md)
   - [Importance of leadership skills for career advancement](chapter-1-2.md)
 - [Chapter 2: Understanding Effective Leadership](chapter-2.md)
@@ -36,10 +35,5 @@
   - [Evaluating and analyzing leadership effectiveness](chapter-9-1.md)
   - [Setting goals for improvement](chapter-9-2.md)
   - [Implementing changes and measuring progress](chapter-9-3.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Summary of key points](chapter-10-1.md)
-  - [Final thoughts and recommendations](chapter-10-2.md)
-- [Chapter 11: Appendix](chapter-11.md)
-  - [Tools and resources for developing leadership skills](chapter-11-1.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

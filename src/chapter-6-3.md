@@ -1,4 +1,4 @@
-Chapter 6: Decision Making and Problem Solving: Implementing Decisions and Measuring Progress
+Implementing Decisions and Measuring Progress
 =============================================================================================
 
 Effective decision making and problem solving also involve implementing decisions and measuring progress towards achieving desired outcomes. In this chapter, we will discuss techniques for implementing decisions and measuring progress.

@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Importance of Leadership Skills for Career Advancement
+Importance of Leadership Skills for Career Advancement
 ===============================================================================
 
 Leadership skills are essential for career growth and advancement. In this chapter, we will discuss the importance of leadership skills and their impact on personal and professional success.

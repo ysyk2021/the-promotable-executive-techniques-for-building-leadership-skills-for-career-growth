@@ -1,4 +1,4 @@
-Chapter 6: Decision Making and Problem Solving: Effective Decision Making Techniques
+Effective Decision Making Techniques
 ====================================================================================
 
 Effective decision making is a critical aspect of leadership development. In this chapter, we will discuss some effective decision-making techniques.

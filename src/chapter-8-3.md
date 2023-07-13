@@ -1,4 +1,4 @@
-Chapter 8: Leading Change: Managing Resistance to Change
+Managing Resistance to Change
 ========================================================
 
 Leading change is an essential aspect of effective leadership. However, change can be met with resistance from team members. In this chapter, we will discuss techniques for managing resistance to change.

@@ -1,4 +1,4 @@
-Chapter 8: Leading Change: Communicating and Implementing Change
+Communicating and Implementing Change
 ================================================================
 
 Leading change is an essential aspect of effective leadership. In this chapter, we will discuss techniques for communicating and implementing change.

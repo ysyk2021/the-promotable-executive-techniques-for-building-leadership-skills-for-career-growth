@@ -1,4 +1,4 @@
-Chapter 9: Continuous Improvement: Implementing Changes and Measuring Progress
+Implementing Changes and Measuring Progress
 ==============================================================================
 
 Continuous improvement involves implementing changes and measuring progress towards achieving desired outcomes. In this chapter, we will discuss techniques for implementing changes and measuring progress.

@@ -1,4 +1,4 @@
-Chapter 11: Appendix: Tools and Resources for Developing Leadership Skills
+Tools and Resources for Developing Leadership Skills
 ==========================================================================
 
 In this appendix, we will provide some tools and resources for developing leadership skills.

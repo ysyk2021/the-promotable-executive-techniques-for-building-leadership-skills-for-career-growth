@@ -1,4 +1,4 @@
-Chapter 2: Understanding Effective Leadership: Defining Leadership
+Defining Leadership
 ==================================================================
 
 In this chapter, we will discuss the concept of leadership and what it means to be an effective leader.

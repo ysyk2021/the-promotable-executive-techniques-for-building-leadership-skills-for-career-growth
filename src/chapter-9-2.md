@@ -1,4 +1,4 @@
-Chapter 9: Continuous Improvement: Setting Goals for Improvement
+Setting Goals for Improvement
 ================================================================
 
 Continuous improvement is a key aspect of leadership development. In this chapter, we will discuss the importance of setting goals for improvement and provide tips for setting effective goals.

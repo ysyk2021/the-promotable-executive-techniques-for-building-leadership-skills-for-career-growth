@@ -1,4 +1,4 @@
-Chapter 4: Communication Skills: Giving and Receiving Feedback
+Giving and Receiving Feedback
 ==============================================================
 
 Effective communication is critical to successful leadership. In this chapter, we will discuss the importance of giving and receiving feedback and techniques for doing so effectively.

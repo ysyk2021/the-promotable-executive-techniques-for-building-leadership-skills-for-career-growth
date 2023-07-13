@@ -1,4 +1,4 @@
-Chapter 5: Emotional Intelligence: Understanding Emotional Intelligence
+Understanding Emotional Intelligence
 =======================================================================
 
 Emotional intelligence is the ability to recognize and understand one's own emotions, as well as the emotions of others. It also involves the ability to regulate one's own emotions and respond effectively to the emotions of others. In this chapter, we will discuss the importance of understanding emotional intelligence and how it can enhance leadership skills.

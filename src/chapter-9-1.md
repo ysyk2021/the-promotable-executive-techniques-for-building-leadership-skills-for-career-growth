@@ -1,4 +1,4 @@
-Chapter 9: Continuous Improvement: Evaluating and Analyzing Leadership Effectiveness
+Evaluating and Analyzing Leadership Effectiveness
 ====================================================================================
 
 Continuous improvement involves evaluating, analyzing, and improving leadership effectiveness to achieve greater success. In this chapter, we will discuss techniques for evaluating and analyzing leadership effectiveness.

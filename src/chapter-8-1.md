@@ -1,4 +1,4 @@
-Chapter 8: Leading Change: Understanding Change Management
+Understanding Change Management
 ==========================================================
 
 Leading change is an essential part of effective leadership. In this chapter, we will discuss the importance of understanding change management and techniques for leading change effectively.

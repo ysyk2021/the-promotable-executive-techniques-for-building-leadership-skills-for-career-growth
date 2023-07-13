@@ -1,4 +1,4 @@
-Chapter 3: Developing Your Leadership Skills: Setting Goals and Objectives
+Setting Goals and Objectives
 ==========================================================================
 
 Effective leadership involves ongoing self-reflection and improvement. In this chapter, we will discuss the importance of setting goals and objectives for personal and professional development.

@@ -1,4 +1,4 @@
-Chapter 3: Developing Your Leadership Skills: Identifying Areas for Improvement
+Identifying Areas for Improvement
 ===============================================================================
 
 Effective leadership involves ongoing self-reflection and improvement. In this chapter, we will discuss the importance of identifying areas for improvement and techniques for doing so.

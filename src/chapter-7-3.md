@@ -1,4 +1,4 @@
-Chapter 7: Team Management: Providing Motivation and Support
+Providing Motivation and Support
 ============================================================
 
 Effective team management involves providing motivation and support to team members. In this chapter, we will discuss techniques for providing motivation and support.

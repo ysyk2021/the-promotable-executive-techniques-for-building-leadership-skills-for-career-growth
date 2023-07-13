@@ -1,4 +1,4 @@
-Chapter 4: Communication Skills: Understanding Different Types of Communication
+Understanding Different Types of Communication
 ===============================================================================
 
 Effective communication is critical to successful leadership. In this chapter, we will discuss the importance of understanding different types of communication and how they can be used to enhance communication skills.

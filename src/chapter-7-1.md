@@ -1,4 +1,4 @@
-Chapter 7: Team Management: Building and Managing Effective Teams
+Building and Managing Effective Teams
 =================================================================
 
 Effective team management involves building and managing effective teams. In this chapter, we will discuss techniques for building and managing effective teams.

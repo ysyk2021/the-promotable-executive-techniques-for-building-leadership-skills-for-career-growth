@@ -1,4 +1,4 @@
-Chapter 6: Decision Making and Problem Solving: Analyzing Problems and Identifying Solutions
+Analyzing Problems and Identifying Solutions
 ============================================================================================
 
 Effective problem-solving skills are critical to leadership success. In this chapter, we will discuss techniques for analyzing problems and identifying solutions.

@@ -1,4 +1,4 @@
-Chapter 2: Understanding Effective Leadership: Key Characteristics of Effective Leaders
+Key Characteristics of Effective Leaders
 =======================================================================================
 
 Effective leaders possess certain key characteristics that enable them to inspire and motivate their teams towards shared objectives. In this chapter, we will discuss these characteristics in more detail.

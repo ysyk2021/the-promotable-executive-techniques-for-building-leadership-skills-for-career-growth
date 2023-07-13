@@ -1,4 +1,4 @@
-Chapter 7: Team Management: Delegating Tasks and Responsibilities
+Delegating Tasks and Responsibilities
 =================================================================
 
 Effective team management involves delegating tasks and responsibilities to team members. In this chapter, we will discuss techniques for delegating tasks and responsibilities.

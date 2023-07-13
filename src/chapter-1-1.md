@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Purpose of the Book
+Purpose of the Book
 ============================================
 
 The purpose of this book is to provide techniques and strategies for building leadership skills that can help individuals achieve career growth as promotable executives. In this chapter, we will discuss the goals and objectives of the book.

@@ -1,4 +1,4 @@
-Chapter 4: Communication Skills: Developing Effective Listening Skills
+Developing Effective Listening Skills
 ======================================================================
 
 Effective communication is critical to successful leadership. In this chapter, we will discuss the importance of developing effective listening skills and techniques for doing so.

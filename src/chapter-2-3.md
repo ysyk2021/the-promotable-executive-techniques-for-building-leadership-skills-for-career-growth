@@ -1,4 +1,4 @@
-Chapter 2: Understanding Effective Leadership: Different Leadership Styles and When to Use Them
+Different Leadership Styles and When to Use Them
 ===============================================================================================
 
 There are various leadership styles that can be effective in different situations. In this chapter, we will discuss some common leadership styles and when to use them.

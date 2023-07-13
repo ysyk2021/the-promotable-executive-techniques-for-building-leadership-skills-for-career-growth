@@ -1,4 +1,4 @@
-Chapter 5: Emotional Intelligence: Managing Emotions in the Workplace
+Managing Emotions in the Workplace
 =====================================================================
 
 Emotional intelligence is an essential aspect of effective leadership. In this chapter, we will discuss techniques for managing emotions in the workplace through emotional intelligence.
