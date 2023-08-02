@@ -1,4 +1,4 @@
-Chapter 8: Delegating Tasks and Responsibilities
+Delegating Tasks and Responsibilities
 ================================================
 
 In this chapter, we will explore the importance of effective delegation as a promotable executive and provide techniques for mastering the art of delegating tasks and responsibilities.

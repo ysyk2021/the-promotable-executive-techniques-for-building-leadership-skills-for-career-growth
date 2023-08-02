@@ -1,4 +1,4 @@
-Chapter 10: Implementing Decisions and Measuring Progress
+Implementing Decisions and Measuring Progress
 =========================================================
 
 In this chapter, we will explore the process of implementing decisions and measuring progress as a promotable executive. Making effective decisions is just one part of the equation for success. Equally important is the ability to execute those decisions efficiently and track their progress. By mastering these skills, you can ensure that your decisions have a meaningful impact on your career growth and leadership journey. Let's delve into the steps involved in implementing decisions and measuring progress.

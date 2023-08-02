@@ -1,4 +1,4 @@
-Chapter 7: Understanding Change Management
+Understanding Change Management
 ==========================================
 
 Change is a constant in today's dynamic business environment. As promotable executives, it is crucial to understand and effectively manage change to drive organizational success and personal career growth. In this chapter, we will delve into the concept of change management and explore strategies for navigating change successfully.

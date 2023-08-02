@@ -1,4 +1,4 @@
-Chapter 6: Implementing Changes and Measuring Progress
+Implementing Changes and Measuring Progress
 ======================================================
 
 Implementing changes and measuring progress is essential for successful leadership growth and career advancement. In this chapter, we will explore effective strategies for implementing changes and tracking your progress as you work towards becoming a promotable executive.

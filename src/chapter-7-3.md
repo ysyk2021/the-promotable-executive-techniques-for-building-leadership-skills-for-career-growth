@@ -1,4 +1,4 @@
-Chapter 9: Providing Motivation and Support
+Providing Motivation and Support
 ===========================================
 
 In this chapter, we will delve into the importance of providing motivation and support as a promotable executive. We will explore techniques for inspiring and empowering your team members to achieve their best performance and fostering a supportive work environment.

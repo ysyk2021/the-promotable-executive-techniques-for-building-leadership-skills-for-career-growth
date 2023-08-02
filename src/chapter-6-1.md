@@ -1,4 +1,4 @@
-Chapter 6: Effective Decision-Making Techniques
+Effective Decision-Making Techniques
 ===============================================
 
 In this chapter, we will explore a variety of effective decision-making techniques to support your growth as a promotable executive. As a leader, your ability to make sound decisions is critical for driving success and achieving your career goals. By employing these techniques, you can enhance your decision-making skills and ensure that your choices are well-informed and impactful.

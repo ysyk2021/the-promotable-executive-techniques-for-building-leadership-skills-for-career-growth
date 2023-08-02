@@ -1,4 +1,4 @@
-Chapter 1: Purpose of the Book
+Purpose of the Book
 ==============================
 
 The purpose of this book, "The Promotable Executive: Techniques for Building Leadership Skills for Career Growth," is to provide aspiring leaders with practical strategies and insights to accelerate their career growth and develop essential leadership skills. This chapter will outline the objectives and key themes of the book.

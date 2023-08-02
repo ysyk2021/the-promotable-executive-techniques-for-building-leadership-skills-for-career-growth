@@ -1,4 +1,4 @@
-Chapter 6: Communicating and Implementing Change
+Communicating and Implementing Change
 ================================================
 
 Effective communication and successful implementation of change are essential for leadership growth and career advancement. In this chapter, we will explore strategies for communicating and implementing change as a promotable executive.

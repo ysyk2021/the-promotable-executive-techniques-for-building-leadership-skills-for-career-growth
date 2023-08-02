@@ -1,4 +1,4 @@
-Chapter 9: Building Relationships with Others
+Building Relationships with Others
 =============================================
 
 In this chapter, we will explore the importance of building strong relationships as a promotable executive. Effective leaders understand that relationships are the foundation for success in both personal and professional endeavors. By cultivating meaningful connections with others, you can enhance your leadership skills and drive career growth.

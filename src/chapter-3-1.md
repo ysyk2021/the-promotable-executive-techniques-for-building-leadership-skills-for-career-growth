@@ -1,4 +1,4 @@
-Chapter 3: Assessing Your Current Leadership Abilities
+Assessing Your Current Leadership Abilities
 ======================================================
 
 Assessing your current leadership abilities is a crucial step in developing your skills and charting a path for career growth. This chapter will guide you through a process of self-reflection and evaluation to gain insights into your strengths, weaknesses, and areas for improvement as a leader.
