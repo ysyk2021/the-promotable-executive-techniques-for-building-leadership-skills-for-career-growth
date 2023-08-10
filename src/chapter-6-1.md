@@ -1,4 +1,4 @@
-Chapter 5: Effective Decision Making Techniques
+Effective Decision Making Techniques
 ===============================================
 
 In today's fast-paced business environment, effective decision making is a crucial skill for aspiring leaders. The ability to make well-informed and timely decisions can significantly impact one's career growth and overall success as an executive. This chapter will explore various techniques that can enhance your decision-making capabilities and help you navigate complex situations with confidence.
