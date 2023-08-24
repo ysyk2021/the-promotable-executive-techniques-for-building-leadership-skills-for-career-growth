@@ -1,5 +1,3 @@
-Managing Emotions in the Workplace
-=============================================
 
 In this chapter, we will explore the importance of managing emotions in the workplace and provide techniques for promotable executives to cultivate emotional intelligence and create a positive work environment.
 

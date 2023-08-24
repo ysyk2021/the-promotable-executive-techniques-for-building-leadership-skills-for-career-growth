@@ -1,5 +1,3 @@
-Chapter 6: Decision Making and Problem Solving
-==============================================
 
 Effective decision making and problem-solving skills are critical to leadership success. In this chapter, we will discuss techniques for effective decision making, analyzing problems, identifying solutions, implementing decisions, and measuring progress.
 
@@ -34,5 +32,4 @@ Conclusion
 ----------
 
 In conclusion, effective decision making and problem-solving skills are essential for leadership success. By using effective decision-making and problem-solving techniques, individuals can assess all available information, generate potential solutions, and select the best course of action. By implementing decisions and measuring progress, individuals can achieve their desired outcomes and enhance their ability to lead effectively as promotable executives.
-
 

@@ -1,5 +1,3 @@
-Managing Resistance to Change
-========================================
 
 Change is often met with resistance within organizations, making it essential for promotable executives to learn effective strategies for managing resistance. This chapter explores various approaches and techniques for addressing and overcoming resistance to change.
 

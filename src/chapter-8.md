@@ -1,5 +1,3 @@
-Chapter 8: Leading Change
-=========================
 
 Leading change is an essential part of effective leadership. In this chapter, we will discuss the importance of understanding change management, communicating and implementing change, and managing resistance to change.
 

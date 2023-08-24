@@ -1,5 +1,3 @@
-Summary of Key Points
-=============================================
 
 In this book, we have discussed techniques and strategies for building leadership skills that can help individuals achieve career growth as promotable executives. In this chapter, we will summarize the key points discussed in the book.
 

@@ -1,5 +1,3 @@
-Setting Goals and Objectives
-=======================================
 
 Setting clear goals and objectives is a fundamental step towards career growth and becoming a promotable executive. This chapter will guide you through the process of setting meaningful goals and establishing a roadmap for achieving them.
 

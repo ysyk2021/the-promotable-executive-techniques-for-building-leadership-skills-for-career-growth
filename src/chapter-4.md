@@ -1,5 +1,3 @@
-Chapter 4: Communication Skills
-===============================
 
 Effective communication is a critical component of successful leadership. In this chapter, we will discuss the importance of understanding different types of communication, developing effective listening skills, and giving and receiving feedback.
 

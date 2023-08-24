@@ -1,5 +1,3 @@
-Setting Goals for Improvement
-========================================
 
 Goal setting is a powerful tool for personal and professional growth. In this chapter, we will explore the importance of setting goals for improving your leadership skills and provide practical strategies for effective goal setting.
 

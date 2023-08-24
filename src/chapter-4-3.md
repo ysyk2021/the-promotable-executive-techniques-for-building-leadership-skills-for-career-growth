@@ -1,5 +1,3 @@
-Giving and Receiving Feedback
-========================================
 
 Feedback is a crucial component of personal and professional growth. It provides valuable insights into our strengths and areas for improvement, helping us enhance our performance and achieve career success. In this chapter, we will explore effective techniques for giving and receiving feedback that can empower you as a promotable executive.
 

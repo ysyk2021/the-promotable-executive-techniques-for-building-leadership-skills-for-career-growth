@@ -1,5 +1,3 @@
-Chapter 5: Emotional Intelligence
-=================================
 
 Emotional intelligence is a critical component of effective leadership. In this chapter, we will discuss the importance of understanding emotional intelligence, managing emotions in the workplace, and building relationships with others.
 

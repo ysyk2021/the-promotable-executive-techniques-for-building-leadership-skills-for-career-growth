@@ -1,5 +1,3 @@
-Chapter 9: Continuous Improvement
-=================================
 
 Continuous improvement involves evaluating, analyzing, and improving leadership effectiveness to achieve greater success. In this chapter, we will discuss techniques for continuous improvement in leadership.
 

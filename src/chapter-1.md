@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Leadership skills are essential for career growth and advancement. In this chapter, we will discuss the purpose of the book and the importance of leadership skills for career advancement.
 

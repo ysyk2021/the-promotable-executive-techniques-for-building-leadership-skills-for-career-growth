@@ -1,5 +1,3 @@
-Chapter 11: Appendix
-====================
 
 In this appendix, we will provide some tools and resources for developing leadership skills.
 

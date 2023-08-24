@@ -1,5 +1,3 @@
-Understanding Emotional Intelligence
-================================================
 
 Emotional intelligence is a crucial aspect of being a promotable executive. In this chapter, we will delve into the concept of emotional intelligence and explore its significance in leadership. We will also discuss techniques for developing and enhancing emotional intelligence to propel your career growth.
 

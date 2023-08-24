@@ -1,5 +1,3 @@
-Chapter 2: Understanding Effective Leadership
-=============================================
 
 Effective leadership is essential to career growth and organizational success. In this chapter, we will discuss the concept of leadership, key characteristics of effective leaders, and different leadership styles and when to use them.
 

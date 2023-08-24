@@ -1,5 +1,3 @@
-Tools and Resources for Developing Leadership Skills
-==========================================================================
 
 In this appendix, we will provide some tools and resources for developing leadership skills.
 

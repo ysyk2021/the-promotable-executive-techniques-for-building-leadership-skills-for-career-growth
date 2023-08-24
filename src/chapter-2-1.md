@@ -1,5 +1,3 @@
-Defining Leadership
-==============================
 
 Leadership is a multifaceted concept that plays a central role in the success of promotable executives. In this chapter, we will explore different perspectives on leadership and delve into the key attributes and responsibilities of effective leaders.
 
