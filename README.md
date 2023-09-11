@@ -1,3 +1,6 @@
+# The Promotable Executive: Techniques for Building Leadership Skills for Career Growth
+
+Book Link: [https://zhengpublishing.com/the-promotable-executive-techniques-for-building-leadership-skills-for-career-growth/](https://zhengpublishing.com/the-promotable-executive-techniques-for-building-leadership-skills-for-career-growth/)
 
 The Promotable Executive: Techniques for Building Leadership Skills for Career Growth is a comprehensive guidebook designed to help professionals of all levels develop the skills necessary to succeed as an executive.
 
